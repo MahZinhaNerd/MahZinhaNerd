@@ -1,16 +1,22 @@
-### Hi there 👋
+### Sejam bem-vindos!! ˚ ༘ ೀ⋆｡˚
 
-<!--
-**MahZinhaNerd/MahZinhaNerd** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+.° Me chamo **Mariana**, mas podem me chamar de **Mari** ou **Mah** •ᴗ• °.
 
-Here are some ideas to get you started:
+- Estou fazendo o curso no Alura ꩜ .ᐟ
+- Irei utilizar esse espaço para organizar meus projetos e compartilhá-los
+- ⋆ ˚｡⋆୨♡୧⋆ ˚｡⋆
+ 
+ ### Entre em contato comigo por aqui:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ eliseu.shirlei@gmail.com _**(pessoal)**_
+ - **ou**
+ 
+ 00001115555650sp@al.educacao.sp.gov.br _**(escolar)**_
+
+ ![](https://images.app.goo.gl/CQdJGfffPmnZLiZQ7)
+
+ദ്ദി(˵ •̀ ᴗ - ˵ ) ✧
+
+
+
+
