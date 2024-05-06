@@ -15,7 +15,7 @@
 
  ![](https://images.app.goo.gl/CQdJGfffPmnZLiZQ7)
 
-ദ്ദി(˵ •̀ ᴗ - ˵ ) ✧
+> ദ്ദി(˵ •̀ ᴗ - ˵ ) ✧
 
 
 
